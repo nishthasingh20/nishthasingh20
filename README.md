@@ -3,6 +3,7 @@
 - 🌱 I’m currently improving my skills and wish to boost them through opportunities. 
 - 💞️ I’m looking to collaborate on web and AI projects.
 - 📫 How to reach me: Linkedin: www.linkedin.com/in/nishtha-singh-510871318
+                       Email: singhnishtha206@gmail.com
 - 😄 Pronouns: she/her
 
 <!---
